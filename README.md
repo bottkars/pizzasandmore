@@ -40,7 +40,7 @@ Enjoy a homemade twist on Flammkuchen — a delicious flatbread you can bake wit
    Mix flour, oil, sparkling water, and salt until smooth and non-sticky.  
    Add more liquid or flour if needed. Shape into a ball, wrap, and chill.
 
-2. **Preheat oven** to 220°C (convection) or 230°C (top/bottom heat).
+2. **Preheat oven** to 220°C (convection) or 230°C (top/bottom heat). // Pizza Oven 310c 
 
 3. **Prepare cream**:  
    Stir crème fraîche with milk or cream. Chill until needed.
@@ -58,7 +58,7 @@ Enjoy a homemade twist on Flammkuchen — a delicious flatbread you can bake wit
    - Slice peeled apples, drizzle lemon juice.
    - Arrange on dough, sprinkle with almonds and cinnamon sugar.
 
-6. **Bake** for 10–15 minutes until crust is golden.
+6. **Bake** for 10–15 minutes until crust is golden. // shorter times in Pizza Oven !!!
 
 7. **Serve hot** with Federweißer, white wine, or a crisp Pilsner.
 
