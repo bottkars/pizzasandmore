@@ -183,4 +183,94 @@ Dauer:
 - rundschleifen
 - in Teigbox legen
 
-Dan
+Danach:
+
+- zurück in den Kühlschrank
+
+---
+
+## Vor dem Backen
+
+3 Stunden vor dem Backen:
+
+- Ballen aus dem Kühlschrank nehmen
+
+Ziel:
+
+- entspannt
+- leicht aufgegangen
+- gut dehnbar
+
+---
+
+## Formen
+
+Anders als bei einer Napoletana:
+
+- Rand nur leicht ausarbeiten
+- Mitte sehr dünn drücken
+- wenig Luft im Rand behalten
+
+Ziel:
+
+- dünne, gleichmäßige Scheibe
+- knuspriger Boden
+- dezenter Rand
+
+---
+
+## Backen im Gozney Dome
+
+Steintemperatur:
+
+- 380-420 °C
+
+Flamme:
+
+- mittel
+
+Backzeit:
+
+- 2-3 Minuten
+
+Pizza regelmäßig drehen.
+
+---
+
+## Erwartete Reife
+
+### 24 Stunden
+
+- sehr guter Crunch
+- gute Dehnbarkeit
+
+### 48 Stunden
+
+- mehr Aroma
+- bessere Bräunung
+- häufig bestes Ergebnis
+
+---
+
+## Mein Sweet Spot
+
+1000 g Caputo Cuoco
+
+650 g Wasser
+(oder 590 g Wasser + 60 g Eis)
+
+25 g Salz
+
+20 g Olivenöl
+
+1,0 g frische Hefe
+
+4 °C Kühlschrank
+
+240-g-Ballen
+
+400 °C Stein
+
+2-3 Minuten Backzeit
+
+=> Klassische Pizza Romana Tonda mit dünnem, knusprigem Boden, schönem Crunch und ausgewogenem Biss.
